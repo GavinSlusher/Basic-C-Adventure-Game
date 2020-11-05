@@ -1,2 +1,2 @@
 # The-Cabin
-![gif](https://imgur.com/a/ZuPDmCH)
+![gif](https://i.imgur.com/YEvMCVg.gif)
